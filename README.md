@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Html**
 
-- 📫 How to reach me **giovannaalimarios@oulook.com**
+- 📫 How to reach me **giovannalimarios@oulook.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
